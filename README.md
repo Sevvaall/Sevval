@@ -1,2 +1,0 @@
-# Sevval
-Açıklama yok
